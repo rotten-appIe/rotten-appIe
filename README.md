@@ -1,4 +1,4 @@
-󠀠󠀠󠀠󠀠      ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀⠀⠀ ⠀ ⠀ ⠀⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀  ⠀ ⠀ ![](https://komarev.com/ghpvc/?username=huntingbow&color=293736&label=♡)
+󠀠󠀠󠀠󠀠      ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀⠀⠀ ⠀ ⠀ ⠀⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀  ⠀ ⠀ ![](https://komarev.com/ghpvc/?username=huntingbow&color=293736&label=ㆍ)
 <p align="center"> 
   <img src="https://i.postimg.cc/YS3sSD3s/Untitled326-20261007191840.webp">
   <p align="center">
